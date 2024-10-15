@@ -2,4 +2,4 @@
 - 🌐 Our website is https://uhome.systems/
 - 👀 I’m interested in smart home systems
 - 📫 How to reach me info@uhome.systems
-- 💬 Join our Discord here: https://discord.gg/JBZaJAvD
+- 💬 Join our Discord here: https://discord.com/invite/GEkYXW9Vm4
